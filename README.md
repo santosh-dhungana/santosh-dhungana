@@ -13,7 +13,7 @@ approaches in Asian regions.</h4>
 
 - 🌱 I’m currently learning **machine learning, deep learning, statistical climate downscaling.**
 
-- 📄 Know about my experiences [linkedin.com/in/santosh-dhungana-674871a0](linkedin.com/in/santosh-dhungana-674871a0/)
+- 📄 Know about my experiences @ [My Profile](linkedin.com/in/santosh-dhungana-674871a0/)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
